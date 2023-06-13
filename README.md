@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+My name is `Afnenda Khansa Tsaabitah`
+
+I'm currently studying at University of Pembangunan Nasional "Veteran" Jawa Timur, taking Business Administration major, class of 2020
